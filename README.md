@@ -1,3 +1,3 @@
 - 📫 amritmanhas11@gmail.com
-- 🎵 https://soundcloud.com/amritmanhas
-- 📷 https://flickr.com/photos/190498305@N02/
+- 🎵 [Music](https://soundcloud.com/amritmanhas "Soundcloud")
+- 📷 [Photography](https://flickr.com/photos/190498305@N02/ "Flickr")
